@@ -1,5 +1,5 @@
 # indian writers🖋️
-![writer image](https://leatherbindingandgoldleafpages.wordpress.com/wp-content/uploads/2014/01/old-books-wallpaper-hd-old-books-wallpaper-hd-714.jpg)
+![writer image](writer.jpg)
 ---
 **1.Rabindranath tagore**:
 Rabindranath Thakur FRAS was an Indian Bengali polymath who worked as a <u> poet, writer, playwright, composer, philosopher, social reformer, and painter of the Bengal Renaissance </u>. He reshaped Bengali literature and music as well as Indian art with Contextual Modernism in the late 19th and early 20th centuries.<br><br>
